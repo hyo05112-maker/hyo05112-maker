@@ -6,11 +6,11 @@
 - 💬 Ask me about ...
 - 📫 연락처
   
-    [call] 010 - 7518 - 0877
+    **call** 010 - 7518 - 0877
 
-    [email] hyo05112@naver.com  
+    **email** hyo05112@naver.com  
 
-    [instagram] lsj_shatov21  
+    **instagram** lsj_shatov21  
 
 - 😄 Pronouns: Male
 - ⚡ Fun fact: ...
