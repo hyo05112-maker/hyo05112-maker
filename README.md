@@ -5,9 +5,9 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 연락처
-  [call] 010 - 7518 - 0877
-  [email] hyo05112@naver.com
-  [instagram] lsj_shatov21
+[1] [call] 010 - 7518 - 0877
+[2] [email] hyo05112@naver.com
+[3] [instagram] lsj_shatov21
 - 😄 Pronouns: Male
 - ⚡ Fun fact: ...
 
