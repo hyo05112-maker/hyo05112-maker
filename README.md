@@ -1,18 +1,7 @@
-## 이상준
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 연락처
-  
-    **call** 010 - 7518 - 0877
+### 이상준  
 
-    **email** hyo05112@naver.com  
-
-    **instagram** lsj_shatov21  
-
-- ⚡ Fun fact: ...
+  ## **Contacts**  
+010-7518-0877 hyo05112@naver.com @lsj_shatov21
 
 
 <!--
