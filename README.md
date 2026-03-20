@@ -12,7 +12,6 @@
 
     **instagram** lsj_shatov21  
 
-- 😄 Pronouns: Male
 - ⚡ Fun fact: ...
 
 
